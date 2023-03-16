@@ -1,0 +1,2 @@
+# ayam-jago
+jagonya ayam
